@@ -1,1 +1,1 @@
-Move over here https://git.shimatsu.eu/kezzyofficial?tab=overview
+Moved over here https://git.shimatsu.eu/kezzyofficial?tab=overview
